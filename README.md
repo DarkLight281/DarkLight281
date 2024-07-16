@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DarkLight281
+- 👋 Hi, I’m Pradiptha
 - 👀 I’m interested in Video Game Design
 - 🌱 I’m currently learning a lot of things
 <!---
